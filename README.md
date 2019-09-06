@@ -2,5 +2,5 @@
 
 HI! I am Karen Alarcon. 
 
-I am hard working, determined although sometimes I feel not enough.
+I am hard working, and very driven.
 I love food
